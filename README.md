@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there <a href="https://www.gifsanimados.org/cat-saludar-con-la-mano-1645.htm"><img src="https://www.gifsanimados.org/data/media/1645/saludar-con-la-mano-imagen-animada-0077.gif" border="0" alt="saludar-con-la-mano-imagen-animada-0077" /></a>, I am Yesireth!
 
 <!--
 **yesireth/yesireth** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
